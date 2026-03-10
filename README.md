@@ -1,5 +1,7 @@
 For details on Jagannatha Hora Search Tool, visit https://youtu.be/9GbLKt80sjU?si=EGtVl28Jd3ppG7iJ
 
+For more details about Operating System AI Agent usage at Beta Level, visit https://youtu.be/3aWlQnFpid4?si=EaEx84rptGl7w2aA
+
 For details on Clean.bat, visit https://youtu.be/3F1LgEkEhsc?feature=shared ;
 
 For details on Nakshatra.xlsx, visit https://youtu.be/rfLIbneHFcU?feature=shared ;
